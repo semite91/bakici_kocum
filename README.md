@@ -1,0 +1,1 @@
+# bakici_kocum
